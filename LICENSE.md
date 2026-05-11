@@ -1,4 +1,4 @@
-
+ClickUp for macOS vip Addon - task automation and collaboration is the best ClickUp for macOS addon, featuring task automation and collaboration. Safe, efficient, and optimized
 
 
 
